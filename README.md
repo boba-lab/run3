@@ -1,2 +1,2 @@
-# lekug.github.io
-# https://unblocked1889.github.io/run3/tn6pS9dCf37xAhkJv/
+# https://sites.google.com/view/unblockedgameswtf2/run-3
+# author ( lekug )
