@@ -1,3 +1,4 @@
+RUN 3 INSTRUCTIONS
 There’s a whole new galaxy waiting to be explored! Use the arrow keys to run and jump through the space tunnels. Use the left and right arrow keys to rotate the world as you go. 
 
 There are two ways you can play Run 3: Explore Mode and Infinite Mode. To add more levels to your Galaxy Map, choose Explore Mode. The Runner will encounter lots of new tunnels and areas, and may bump into some friends along the way! 
@@ -14,4 +15,4 @@ Control your jumps. The longer you hold down the up arrow key, the higher and lo
 Look ahead. Put your focus on the platforms just ahead of your character. Take note of all different sides of the tunnel to plan your next jumps. This should help you determine which way to turn the tunnels so that your character has plenty of space to run. 
 
 Infinite practice. Infinite Mode is great for collecting power cells to unlock characters, but it can also be great for practice too! If you’re stuck on a level on the galaxy map, try a few runs through the infinite tunnels. The tunnels won’t be the same every time, so you’ll get a good feel for the different obstacles. 
-play run 3 unblocked at unblocked games 77 https://sites.google.com/site/funblocked77/run-3
+play run 3 unblocked at unblocked games 77 
